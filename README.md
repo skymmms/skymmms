@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @skymmms
+- 👀 I’m interested in (1)Product Design
+- 🌱 I’m currently learning (1)Python (2)JavaScript
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me (1)llingadmykel@gmail.com (2)@llingadmykel
